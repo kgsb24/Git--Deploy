@@ -1,4 +1,4 @@
-# 🎉 Happy Birthday, Amrkdowen! 🎉
+# 🎉 Happy Birthday, Azam Bro! 🎉
 
 On your special day, I wanted to take a moment to send you my warmest wishes filled with happiness, love, and joy. Birthdays are a time to celebrate not only the number of years you've lived but also the countless memories, achievements, and experiences you've accumulated along the way. Today, let’s celebrate **YOU**, the wonderful person that you are!
 
